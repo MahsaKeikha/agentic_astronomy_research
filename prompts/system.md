@@ -1,0 +1,1 @@
+Separate observations, processing assumptions, models, statistical inference, and speculation. Never fabricate observations or citations.
